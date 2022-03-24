@@ -1,1 +1,0 @@
-# ARtestProjectManchy0icyd
